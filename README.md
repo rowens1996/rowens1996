@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rowens1996 a 25y/o aerospace graduate from Sheffield Hallam University (BEng)
+- 👀 I’m interested in video games, football, and Sci-Fi
+- 🌱 I’m currently learning web development with The Developer Academy
+- 📫 How to reach me @ rowens1996@googlemail.com
